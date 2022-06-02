@@ -1,1 +1,1 @@
-https://lsmail-x.github.io/rsschool-cv/cv
+https://lsmail-x.github.io/rsschool-cv/
